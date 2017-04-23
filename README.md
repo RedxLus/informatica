@@ -1,6 +1,8 @@
-# informatica o no informar 
+# Informatica o no Informar 
 Solo un archivo más que no sirve más que para poner texto y aumentar el ratio. Por qué no es eso lo mejor, tener sin pagar nada. Por eso me gusta tanto la informática, no necesito pagar para poder acceder a todos los conocimientos del mundo. Es compartir para mejorar. No necesito más que a otras personas como yo, con ganas de compartir conocimientos sobre computación e informática.
 
 Y no es más bonito una sociedad que se ayude entre nosotros, entre las personas y no necesite pagar por conectar unas con otras. Eso espero que llegue finalmente algún día. Por ahora son solo desvarios de un joven que intenta hacerse un hueco en un mundo dominado por el dinero y los "padrinos" si no tienes a alquilen importante a tu lado al parecer no eres nadie y mucho más en este mundo dominado por la computación y sus ramas que finalmente destacamos los informáticos por fin, ya era hora.
 
 Políticos por poner un ejemplo de poder actual usan la informática como medio para conseguir más votantes. Las redes sociales se han convertido en una fuente inagotable de personas que buscan rellenar su tiempo libre con cualquier cosa. Y eso es peligroso. Permite que personas con un poco más de inteligencia manipulen sus mentes y las lleven por el camino que quieran. Muchas veces (como no) para ganar ellos un beneficio económico.
+
+Este es mi espacio, como podéis comprobar pone mi usuario y no el vuestro. Con esto no quiero ofender a nadie es mi simple opinión. Si habéis llegado aquí lo mas seguro que sea por un fallo y esto en un principio no debería leerlo nadie. Si queréis saber un poco más de mí podéis visitas mi página web 
