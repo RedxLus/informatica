@@ -1,2 +1,2 @@
 # informatica
-&lt;a href="http://www.google.com">Página principal de Google&lt;/a>
+Solo un archivo mas que no sirve mas que para poner texto y aumentar el ratio.
